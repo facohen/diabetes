@@ -3,6 +3,8 @@
 ## By Federico Alejandro Cohen
 ## Buenos Aires, Argentina - August 2021 
 
+Published on Medium: https://medium.com/@c.federico/diagnose-my-diabetes-now-28c1cce9110f
+
 
 Project Description
 
